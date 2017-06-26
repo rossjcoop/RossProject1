@@ -1,0 +1,1 @@
+Welcome to the insane world of Ross Cooper.
